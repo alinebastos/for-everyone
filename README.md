@@ -6,11 +6,14 @@ Não serão tolerados comentários machistas, homofóbicos, racistas, transfóbi
 Usem palavras neutras de gênero, por favor, para se referir ao grupo, tipo 'pessoal', 'galera', ou outros do tipo.
 Vamos fazer desses grupos locais seguros pra quem não se sente seguro em outros locais, ok? 
 
-### JavaScript For Everyone
-https://t.me/joinchat/BAqjuhLK8PIDCwBPdXpa4Q
+### DevsOnBeer
+https://t.me/joinchat/AAGFaU2UlrGmPrHYIrTvSg
 
 ### FrontEnd For Everyone
 https://t.me/joinchat/BAqjug7FxYSa6fmpDy_rSA
+
+### JavaScript For Everyone
+https://t.me/joinchat/BAqjuhLK8PIDCwBPdXpa4Q
 
 ### English For Everyone
 https://t.me/joinchat/BAqjug1lESBn6PlIuB9Lsw
