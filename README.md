@@ -8,14 +8,17 @@ Vamos fazer desses grupos locais seguros pra quem não se sente seguro em outros
 ### DevsOnBeer
 https://t.me/joinchat/AAGFaU2UlrGmPrHYIrTvSg
 
+### English For Everyone
+https://t.me/joinchat/BAqjug1lESBn6PlIuB9Lsw
+
 ### FrontEnd For Everyone
 https://t.me/joinchat/BAqjug7FxYSa6fmpDy_rSA
 
 ### JavaScript For Everyone
 https://t.me/joinchat/BAqjuhLK8PIDCwBPdXpa4Q
 
-### English For Everyone
-https://t.me/joinchat/BAqjug1lESBn6PlIuB9Lsw
-
 ### Programando na Gringa for Everyone
 https://t.me/joinchat/BGo7IxIqS6rc2XWzJ-HQ_Q
+
+### Wordpress para todos
+https://t.me/joinchat/ByKZRFLFBBFVkj7SNKS-3w
