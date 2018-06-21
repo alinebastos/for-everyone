@@ -1,4 +1,4 @@
-# for-everyone
+# For Everyone
 
 ### JavaScript For Everyone
 https://t.me/joinchat/BAqjuhLK8PIDCwBPdXpa4Q
