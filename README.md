@@ -5,9 +5,6 @@ Respeito com todos é fundamental.
 Não serão tolerados comentários machistas, homofóbicos, racistas, transfóbicos e preconceituosos de nenhuma maneira, os autores desses comentários serão banidos de todos os grupos. Usem palavras neutras de gênero, por favor, para se referir ao grupo, tipo 'pessoal', 'galera', ou outros do tipo.
 Vamos fazer desses grupos locais seguros pra quem não se sente seguro em outros locais, ok? 
 
-### DevsOnBeer
-https://t.me/joinchat/AAGFaU2UlrGmPrHYIrTvSg
-
 ### English For Everyone
 https://t.me/joinchat/BAqjug1lESBn6PlIuB9Lsw
 
