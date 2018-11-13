@@ -19,3 +19,6 @@ https://t.me/joinchat/BGo7IxIqS6rc2XWzJ-HQ_Q
 
 ### Wordpress para todos
 https://t.me/joinchat/ByKZRFLFBBFVkj7SNKS-3w
+
+### Python Brasil #rlz roda de conversa
+https://t.me/pythonbr
