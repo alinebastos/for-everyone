@@ -17,5 +17,8 @@ https://t.me/joinchat/BAqjuhLK8PIDCwBPdXpa4Q
 ### Programando na Gringa for Everyone
 https://t.me/joinchat/BGo7IxIqS6rc2XWzJ-HQ_Q
 
+### Livros For Everyone
+https://t.me/livrosforeveryone
+
 ### Wordpress para todos
 https://t.me/joinchat/ByKZRFLFBBFVkj7SNKS-3w
